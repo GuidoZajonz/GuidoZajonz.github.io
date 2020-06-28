@@ -6,3 +6,7 @@ Audrey Justine Tautou [odˌʀɛ ʒysˌtin toˈtu] (* 9. August 1976 in Beaumont)
 * Französin
 * Schauspielerin
 * weiblich
+
+Eines ihrer Zitate lautet:
+> Am Ende ist alles gut.
+> Wenn noch nicht alles gut ist, dann ist es noch nicht das Ende ;-)
